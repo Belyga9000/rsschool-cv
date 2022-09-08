@@ -1,1 +1,1 @@
-https://belyga9000.github.io/rsschool-cv/c
+https://belyga9000.github.io/rsschool-cv/cv
